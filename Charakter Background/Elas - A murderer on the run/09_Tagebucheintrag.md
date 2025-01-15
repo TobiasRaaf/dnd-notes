@@ -2,4 +2,4 @@ Der heutige Tag könnte in die Geschichte dieses Reiches eingehen. Falls nicht, 
 
 So oder so werde ich Weißklinge vorerst vor den falschen Händen schützen müssen. Weißklinge ist jetzt meine... unsere Verantwortung und damit ruht das Schicksal des Reiches auf unseren Schultern. All der Schaden den wir anrichteten, die Leben die wir nahmen. Vielleicht waren sie ein notwendiges Opfer zum Wohle des Reiches. Und wie auch immer der Weg aussieht auf den uns die Ereignisse des heutigen Tages gebracht haben, wir werden tun müssen was nötig ist, um ihn zu gehen. Ich vertraue darauf, dass unsere Gruppe das gemeinsam durchsteht.
 
-Mit den Altlasten Wokambes vergangener, leichtsinniger Entscheidungen kann ich mich gerade nicht beschäftigen. Auch dieses Problem werden wir zusammen angehen müssen, aber zu einer anderen Zeit. 
+Mit den Altlasten Wokambes vergangener, leichtsinniger Entscheidungen kann ich mich gerade nicht beschäftigen. Auch dieses Problem werden wir zusammen angehen müssen, aber zu einer anderen Zeit.
