@@ -1,0 +1,1 @@
+Invasion in der Jagged Bay: Dort wurde [[Virion Fentris (Zweite Identität)]] verletzt

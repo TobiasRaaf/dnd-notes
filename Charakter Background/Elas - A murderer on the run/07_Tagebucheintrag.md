@@ -1,0 +1,16 @@
+07.06.1825
+
+Das erste mal seit langem schreibe ich diesen Tagebucheintrag nicht nur mit der unwahrscheinlichen Hoffnungen, sondern fast mit einer Art Gewissheit, dass sich mein Leben bald wieder zum Guten wenden wird. Wir haben es doch tatsächlich geschafft in diesem Abklatsch einer richtigen Stadt an Ansehen zu gewinnen. Ja sogar Grundbesitzer zu werden. So langsam füllt sich auch mein Goldbeutel regelmäßiger und es lässt sich wieder erträglich leben. Und mit eigenem Grund und Boden wird es sich noch viel leichter wieder einen gewissen Lebensstandard halten lassen.
+Da gibt es nur eine winzige Kleinigkeit die mir dieser Tage weiter Sorgen bereitet. UND ZWAR DER VERDAMMTE KRIEG DER HIER BALD AUSBRICHT. 
+Ich verstehe nicht warum ich der einzige bin der klar genug denken kann, um ~~Angst~~ eine Mischung aus gesundem Menschenverstand und Vorsicht vor dieser Situation zu haben. Die anderen verhalten sich als würde in diesem Konflikt nicht unser Leben auf dem Spiel stehen. 
+Aber nun habe ich hier auch einen Einsatz im Spiel, also gibt es wohl nicht mehr die Option sich zu verpissen, wenn ich meinen frisch erlangten Status nicht verlieren möchte. Und außerdem befürchte ich, dass ich für die Verteidigung der Stadt zu essentiell geworden bin, als dass wir uns jetzt einfach raushalten könnten. Immerhin klingt der Plan mehr für morgen mehr als vernünftig und könnte uns den notwendigen Vorteil in diesem Konflikt geben.
+
+08.06.1825
+
+In Anbetracht der Veranstaltung heute habe ich viel über eine bestimmte Sache nachgedacht: Was wünsche ich mir eigentlich heute Abend für Wokambe? Wir beide haben sicherlich nicht das beste Verhältnis zueinander und das hat letztendlich auch nicht unwesentlich viel damit zu tun, dass er ein aufgeblasener Arsch ist, aber zu meiner Überraschung musste ich feststellen, dass ich ihm von ganzem Herzen einen erfolgreichen Abend wünsche. Trotz unserer Konflikte wünsche ich ihm, dass er heute Abend das erreicht, was er sich von dieser Aufführung erhofft. Ich schätze ich habe mich ziemlich an diese Gruppe gewöhnt und damit sogar an Wokambe und seine Eigenarten. Eventuell sollte ich mich ihm gegenüber etwas versöhnlicher geben, auch wenn es mir durchaus schwer fällt. Immerhin sind viele seiner zickigen Kommentare ja auch nur eine Reaktion auf meine deutlich schlagfertigeren Seitenhiebe zuvor.
+Was mir hingegen überhaupt nicht schwer fällt ist es Rotgar helfen zu wollen. Er scheint ein aufrichtiger und loyaler Mann zu sein und davon gibt es heutzutage viel zu wenige in dieser kaputten Welt. Ich hoffe, dass er sich frühzeitig dazu entscheidet mit seinem Kind zu uns in die Golden Leaf Academy zu kommen. In den nächsten Tagen werden zu viele gute Leute sterben. Ich hoffe nicht durch meine Hand.
+
+08.06.1825 Fortsetzung
+
+Ich bin so ein verdammtes Genie! Vidra, ihr denkt zwar ihr seid besonders geschickt in dieser Sache, aber einen wie mich könnt ihr nicht so leicht verarschen! Ich habe euch durchschaut. Schmiedet ruhig eure Pläne, spielt eure Spielchen, aber meinen wohlverdienten Besitz lasse ich mir nicht so schnell nehmen! Wer weiß, jetzt wo wir Lord Okranis mal wieder gerettet haben springt vielleicht noch mehr dabei heraus. Aber jetzt muss ich erstmal selbst durch den Abend kommen.
+

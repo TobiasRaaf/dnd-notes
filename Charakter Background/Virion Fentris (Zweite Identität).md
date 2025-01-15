@@ -1,0 +1,3 @@
+- Ich nutze die Geschichten von [[Onkel Vamir]] um mich als [[Virion Fentris (Zweite Identität)]] auszugeben, einen ehemaligen [[Dekurion]], welcher seit seiner schweren Verletzung an der linken Gesichtshälfte frühpensionierter Veteran ist und versucht mit seinen Fertigkeiten im Kampf noch die ein oder andere Goldmünze zu verdienen. 
+- Ich gebe vor im Militärdienst bei der Invasion in der [[Jagged Bay]] von einem Schwert im Gesicht getroffen worden zu sein und seitdem nicht mehr kämpfen zu können wir einst. Deshalb wurde ich gegen meinen Willen aus dem Militär entlassen. 
+- Bei tieferem Vertrauen gebe ich der Gruppe gegenüber vor mit einem geheimen Auftrag im Dienste des Militärs beauftragt zu sein 

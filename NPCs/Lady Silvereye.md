@@ -1,0 +1,1 @@
+Talk zu Pragmatismus in der Regierung am 02.06.1825 gehalten
