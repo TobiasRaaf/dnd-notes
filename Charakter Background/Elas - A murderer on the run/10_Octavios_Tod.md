@@ -1,0 +1,7 @@
+- Meine Entscheidungen haben einen meiner besten Freunde getötet
+	- Ich hätte Gnjeva früher das Schwert geben können
+	- Ich hätte oben bei Octavio bleiben sollen
+	- Ich hätte das Schwert nie klauen dürfen
+	- Ich hätte dort sterben sollen
+- Meine Familie wirkt wegen mir vielleicht noch schuldiger als sie es ohnehin ist
+- 
